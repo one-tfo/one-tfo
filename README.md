@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @one-tfo
+- 👀 I’m interested in crypto products and startups
+- 🌱 I’m currently learning web3, blockchain tech
